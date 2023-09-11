@@ -4,7 +4,7 @@ SOON <!-- [mathieustrosberg.com](https://mathieustrosberg.com) -->
 
 ## MAIL
 
-[mathieustrosberg@gmail.com](mailto:mathieustrosberg@gmail.com)  
+[mathieustrosberg@gmail.com](mailto:contact@mathieustrosberg.com)  
 
 ## SOCIAL
 
